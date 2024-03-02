@@ -14,6 +14,6 @@ if spoofer didn't work Do this: https://www.youtube.com/watch?v=rqlrMcltAhU&t=4s
 
 Virus Protection needs to be off to Download the File
 
-
+U NEED WINRAR DOWNLOAD WINRAR https://www.win-rar.com/download.html?&L=0
 
 
